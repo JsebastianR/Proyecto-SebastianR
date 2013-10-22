@@ -1,1 +1,1 @@
-Hoy aprendi algo nuevo.
+Hoy no aprendio nada.
